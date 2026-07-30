@@ -352,3 +352,4 @@ If you find this project useful:
 <meta name="googlec978fa026335d582.html meganz index mega.nz index meganzindex" content="...">
 <meta name="google-site-verification: googlec978fa026335d582.html" content="...">
 `````
+[![Visitor Count](https://www.counter12.com/img-5W8C0Zc55w26wZ7D-8.gif)](https://www.counter12.com)
